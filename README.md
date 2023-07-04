@@ -1,7 +1,7 @@
-https://github.com/GerlachSG/Midis_Tww/blob/main/Never%20Meant%20To%20Belong%20-%20Bleach.mid?raw=true		
+https://github.com/GerlachSG/Midis_Tww/blob/main/Never%20Meant%20To%20Belong%20-%20Bleach.mid?raw=true
 =	Never Meant To Belong
 
-https://github.com/GerlachSG/Midis_Tww/blob/main/Bleach%20-%20La%20Distancia%20Para%20un%20Duelo.mid?raw=true	
+https://github.com/GerlachSG/Midis_Tww/blob/main/Bleach%20-%20La%20Distancia%20Para%20un%20Duelo.mid?raw=true
 =	La Distancia Para Un Duelo
 
 https://github.com/GerlachSG/Midis_Tww/blob/main/Bleach%20-%20Nothing%20can%20be%20explained.mid?raw=true	
